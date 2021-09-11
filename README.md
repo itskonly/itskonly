@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **swami.kt2922@gmail.com**
 
-- ⚡ Fun fact **I just love bike**
+- ⚡ Fun fact **I just love bikes**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
